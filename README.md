@@ -2,7 +2,7 @@
 彡ᯓ " Gamble with our time! "
 ![image](https://github.com/user-attachments/assets/5a0189b4-9306-424c-a2f7-10364f381769)
 
-I use any pronouns well mostly he/they soo¯\_(ツ)_/¯ 🌸🐕 彡 10.5.25 ❦︴✦˙ও Non binary ± AROACE // Bisexual ♡☙ !! 
+I use any pronouns well mostly he/they soo¯\_(ツ)_/¯ 🌸🐕 彡 10.5.25 ❦︴✦˙ও Non binary ± AROACE // GAY ♡☙ !! 
 
 🐝🐬 I'm always free (well not when I'm sleeping nor in school) ❦꙳˙ও  🇵🇭💫 — School starts at 7am until 5pm, phillipines time zone 🦊🧩 :: !! 
 
