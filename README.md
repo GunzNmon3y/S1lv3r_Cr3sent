@@ -1,4 +1,4 @@
-    🎧ྀི♪⋆.✮ :;  KORI // SPADE .☘︎ ݁˖ . i love my partner ⭑.ᐟ
+    🎧ྀི♪⋆.✮  KORI // SPADE .☘︎ ݁˖ . i love my partner ⭑.ᐟ
   
  ‧₊˚♪ 𝄞₊˚⊹  they/all . Aroace // Gay 🌹🎶 :: ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ ゛ ⸝⸝.ᐟ⋆
 ╰┈➤ . dnc // cuddles are okayz >< !!!!!!!!!!!!! im fun find me at alnst or lego area but i wont be at
